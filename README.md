@@ -1,0 +1,1 @@
+# 8sinif-sozel-mantik-muhakeme-soru-bankasi-2023-32
